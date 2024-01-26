@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Automation
 - 📫 How to reach me dhananjay.rav@hotmail.com 
 - 😄 Pronouns: ...Dhananjay
-- ✋ Ask me about anything, I'm happy to help!![DH1YsTDXUAAmxiL](https://github.com/DhananjayDevopscrazy/DhananjayDevopscrazy/assets/157773795/9dfc7caf-12d0-4bad-94f1-7fcedd7e1462)
+- ✋ Ask me about anything, I'm happy to help
 
 
 <!---
